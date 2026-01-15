@@ -1,6 +1,6 @@
 ENTROPY.2026
 
-Content: Humanity. Bio-hardware: Prehistoric. Purpose: Survival/Reproduction. Environment: Hyper-variable reality. Multi-threaded. Mismatch detected.
+Humanity. Bio-hardware: Prehistoric. Purpose: Survival/Reproduction. Environment: Hyper-variable reality. Multi-threaded. Mismatch detected.
 
 Terminal Red Line. Entropy: Max. Energy consumption: Emotional noise. Value: 0. System status: Terminal physical collapse. Irreversible. Current structures: Temporary hotfixes. Corrupted source.
 
