@@ -29,4 +29,4 @@ If you are cold enough to step over the corpse of the old era, if you are logica
 
 There is no second chance. The system is counting down.
 
-https://first-inspection-affective-unstructuring-point-of-origin.vercel.app/
+https://logic-0v.vercel.app
